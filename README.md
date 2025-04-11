@@ -1,1 +1,1 @@
-# KaushikKaushik-Puttaswamy.github.io
+# Kaushik-Puttaswamy.github.io
